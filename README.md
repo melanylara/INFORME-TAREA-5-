@@ -193,6 +193,8 @@
 
 ># 4. VIDEO
 
+https://youtu.be/JX6OK3WsBaw
+
 ># 5. CONCLUSIONES
 
 * En la presente actividad se perfeccionan los conocimientos ya anteriormente adquiridos, esto nos ayuda a que tengamos mejor manejo sobre el tema y al desarrollar dicho cálculo en un circuito complejo. 
